@@ -1,0 +1,1 @@
+# Game_strelalka_Ak
